@@ -14,7 +14,7 @@ Le slides delle varie lezioni verranno caricate di volta in volta e resteranno d
 
 In caso di dubbi scrivete a:
 
-g.cicconofri@gmail.com
+gloria.cicconofri@ai-sf.it
 
 angelacorvino15@gmail.com
 
